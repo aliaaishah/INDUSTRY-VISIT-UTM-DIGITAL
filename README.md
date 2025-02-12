@@ -13,3 +13,6 @@ Overall, the visit to UTM Digital was both educational and inspiring. It gave us
 
 
 ## 🔗 Check out the summary of our UTM Digital visit here: [https://www.canva.com/design/DAGZ0IYiTz8/5ZEe-k2GamhxKWyondQ-hw/edit?utm_content=DAGZ0IYiTz8&utm_campaign=designshare&utm_medium=link2&utm_source=sharebutton]
+
+
+[![](https://github.com/aliaaishah/INDUSTRY-VISIT-UTM-DIGITAL/blob/main/maxresdefault.jpg)]()
